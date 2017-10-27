@@ -1,1 +1,0 @@
-# Projeto_logo_top
